@@ -2,7 +2,7 @@
 
 _10 Jan 1986, single_
 
-**tolya.tar@gmail.com**
+**tolya.tar@gmail.com || +375295588808**
 
 I am seeking a position in the IT sector.
 Ready to improve my skills and set new objectives.
