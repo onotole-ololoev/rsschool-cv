@@ -13,4 +13,4 @@ Ready to improve my skills and set new objectives.
 
 My skills for this moment:  HTML, CSS and JavaScript for begginers
 
-English - Pre-Intermediate
+_English - Pre-Intermediate_
